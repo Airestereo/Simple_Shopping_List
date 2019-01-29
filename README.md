@@ -1,1 +1,0 @@
-# Simple_Shopping_List
